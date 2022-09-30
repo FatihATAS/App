@@ -1,0 +1,1 @@
+Dosyayı aldın mı gardaş
